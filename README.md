@@ -17,6 +17,6 @@ Finds rest removed from the body, alas
 It must be from the mind, perchance tis the
 Reason why it remains alert during
 The passing of the night. Whence the action
-Of dreaming be, he will prove a tiresome he.
+Of dreaming be, he will prove a tiresome he!
 
 
